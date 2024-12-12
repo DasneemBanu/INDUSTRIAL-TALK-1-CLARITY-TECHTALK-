@@ -1,1 +1,2 @@
 # INDUSTRIAL-TALK-1-CLARITY-TECHTALK-
+(https://pdf.ac/4qv2vf)
